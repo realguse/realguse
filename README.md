@@ -2,4 +2,4 @@
 
 ### 13-year-old software developer from Norway 🇳🇴
 
-#### I enjoy spending my time in front of a computer, snowboarding and blasting music.
+I enjoy spending my time in front of a computer, snowboarding and blasting music.

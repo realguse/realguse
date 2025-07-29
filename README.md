@@ -1,4 +1,4 @@
-# hey! i'm realguse 👋
+# hey i'm realguse 👋
 
 #### 13-year-old software developer from Norway 🇳🇴
 

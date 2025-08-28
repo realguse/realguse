@@ -1,5 +1,3 @@
 # hey i'm realguse 👋
 
-#### 14yo developer from Norway 🇳🇴
-
-#### I enjoy spending time at the computer, blasting music and snowboarding whenever I get the chance.
+#### I'm a 14-year-old developer from Norway who loves building for fun, blasting music, snowboarding and cramming down on granola.
